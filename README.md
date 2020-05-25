@@ -2,5 +2,5 @@
 
 Hi everyone!
 
-My name is Anna. I am 27. I am Ukreinian based in London,United Kingdom. 
+My name is Anna. I am 27. I am Ukrainian based in London,United Kingdom. 
 My hobby is music and tennis.
